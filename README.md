@@ -8,7 +8,7 @@
 
 ## Education
 
-🏫 Currently learning the skills needed to secure an internship and kickstart my professional career.
+👨🏻‍💻 Life long learner.
 
 🎓 Pursuing a Bachelor's in AI & DS.
 
